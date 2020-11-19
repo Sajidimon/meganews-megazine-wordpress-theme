@@ -1,0 +1,1 @@
+# meganews-megazine-wordpress-theme
